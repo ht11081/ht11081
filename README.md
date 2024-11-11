@@ -1,4 +1,4 @@
-## Nguyễn Sang Quang - UNETI
+## Nguyễn Sanh Quang - UNETI
 
 # University: Trường Đại học Kinh tế - Kỹ thuật Công nghiệp
 
